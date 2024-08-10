@@ -185,7 +185,6 @@ Q4: How long does it take to see results from ZenCortex? Natural supplements lik
 ###### zencortex 24 reviews
 ###### zencortex coupon code
 ###### zencortex ear drops
-###### https://inmybowl.com/zencortex-reviews/
 ###### zencortex research
 ###### zencortex drops
 ###### does zencortex really work
